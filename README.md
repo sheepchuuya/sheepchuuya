@@ -1,4 +1,4 @@
-![](https://i.postimg.cc/rsVPctnr/Untitled156-20250119194524.png)
+![Untitled156-20250119194524.png](https://postimg.cc/1ndHr4Zm)
 
 <h6>ㅤ  ㅤchuuya nakahara (bsd) enthusiast (⁠ノ⁠^⁠_⁠^⁠)⁠ノ
 
