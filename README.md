@@ -4,7 +4,7 @@
 
 ㅤ ㅤㅤㅤ:: [cardd](https://chuuyyaa.carrd.co/) , [strawpage](https://uponthetaintedsorroww.straw.page/) , [atabook](https://uponthetaintedsorrow.atabook.org/) , [prns.cc](https://pronouns.cc/@uponthetaintedsorrow) , [rentry](https://rentry.co/sillychuya) . . . but oh my god , i think im in love w you .
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-![](https://images.app.goo.gl/PmQQcTpLzZgZc58d7)
+![](https://tenor.com/pxOKp75U9sQ.gif)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![](https://64.media.tumblr.com/adc41eee444ca1110be348ff9a28a42a/0e895e80e87c3539-47/s500x750/a121e0a0404b1e2d6ae81af1cdb076785ec95da7.gif)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
