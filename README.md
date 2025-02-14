@@ -6,4 +6,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![](https://64.media.tumblr.com/adc41eee444ca1110be348ff9a28a42a/0e895e80e87c3539-47/s500x750/a121e0a0404b1e2d6ae81af1cdb076785ec95da7.gif)
-![](https://images.app.goo.gl/5rC5DMGdMbgb9XkV6)
+![](https://i.pinimg.com/originals/e1/34/05/e1340591893b3239d0ff18c3282cbcda.gif)
