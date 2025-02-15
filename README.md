@@ -2,7 +2,7 @@
 
 <h6>ㅤ  ㅤchuuya nakahara (bsd) enthusiast (⁠ノ⁠^⁠_⁠^⁠)⁠ノ
 
-ㅤ ㅤㅤㅤ:: [cardd](https://chuuyyaa.carrd.co/) , [strawpage](https://uponthetaintedsorroww.straw.page/) , [atabook](https://uponthetaintedsorrow.atabook.org/) , [prns.cc](https://pronouns.cc/@uponthetaintedsorrow) , [rentry](https://rentry.co/sillychuya) . . . who am i supposed to please ? who am i . . . ?
+ㅤ ㅤㅤㅤ:: [cardd](https://chuuyyaa.carrd.co/) , [strawpage](https://uponthetaintedsorroww.straw.page/) , [atabook](https://uponthetaintedsorrow.atabook.org/) , [prns.cc](https://pronouns.cc/@uponthetaintedsorrow) , [rentry](https://rentry.co/sillychuya) . . . who am i supposed to please ? who am i ?
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkrwTZ2WGv8TrN4eRKsaTZKlNIi_h6brnnIwJEH4QF3qwRSN5c9i83p7FBrUt6ZqTA31YBgLacUBXeWOMQHWeq5Toa6CMCnK_tvEmq-_-DOPFHw50fNPD-swv7AMz5GFCiIbrPdmkJuI1zrKqO314_8AO72QbVn5J-QgBr14CgnopGnjilQNRE/s1600/Bungou%20Stray%20Dogs%20-%20Episode%2041%20-%20Ranpo%20Surprises%20Mushitarou.gif)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
