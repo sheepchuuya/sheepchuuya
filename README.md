@@ -2,7 +2,7 @@
 
 <h6>ㅤ  ㅤchuuya nakahara (bsd) enthusiast (⁠ノ⁠^⁠_⁠^⁠)⁠ノ
 
-ㅤ ㅤㅤㅤoh yeah i had these :: [atabook](https://uponthetaintedsorrow.atabook.org/) , [prns.cc](https://pronouns.cc/@uponthetaintedsorrow)
+ㅤ ㅤㅤㅤ:: [cardd](https://chuuyyaa.carrd.co/) , [strawpage](https://uponthetaintedsorroww.straw.page/) , [atabook](https://uponthetaintedsorrow.atabook.org/) , [prns.cc](https://pronouns.cc/@uponthetaintedsorrow) , [rentry](https://rentry.co/sillychuya) . . . who am i supposed to please ? who am i ?
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![](https://static.wikia.nocookie.net/bungostraydogs/images/1/1a/Kunikida%27s_sacrifice.gif/revision/latest?cb=20230225062706)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
